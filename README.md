@@ -1,5 +1,5 @@
 # VU-Shitz-n-Gigglesworth
-This is compatible with any version of VU and it significantly improves your in-game quality of life and morale. It's everything you need for a laugh. :)
+This is compatible with any version of VU and it significantly improves your in-game quality of life and morale. It's everything you need for a laugh. 🙂
 
 ABOUT
 This sub-mod was created as a means of humour, to joke around and have a laugh. It was by no means created in order to upset or offend anyone with inappropriate statements and or comments. Also, all statements in this mod which are in the form of sound effects have all been heard before on YouTube and Television. They are not new or unheard of.
